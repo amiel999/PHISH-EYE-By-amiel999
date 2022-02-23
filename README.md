@@ -1,4 +1,13 @@
 # PHISH-EYE-By-amiel999
+WORKING ON WINDOWS ONLY
+
+
+
+
+
+
+
+
 
                                               DISCLAIMER!!
                  Phishing is illegal. Usage of any hacking tools for hacking targets
